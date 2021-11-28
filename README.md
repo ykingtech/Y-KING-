@@ -7,7 +7,7 @@
 
 </a>
 
-![logo](https://telegra.ph/file/702bfc5e4176727a34559.jpg)
+![logo](https://www.google.com/imgres?imgurl=https%3A%2F%2Flookaside.fbsbx.com%2Flookaside%2Fcrawler%2Fmedia%2F%3Fmedia_id%3D108876813928707&imgrefurl=https%3A%2F%2Fwww.facebook.com%2Fpages%2Fcategory%2FMusician-Band%2Fykingsmusicalband%2Fposts%2F&tbnid=8DOhvT9wxS2q0M&vet=12ahUKEwjbwpDO07r0AhVxkUsFHcncDdkQMygDegUIARCxAQ..i&docid=osBc68OAtw2LpM&w=800&h=800&itg=1&q=y%20kings&ved=2ahUKEwjbwpDO07r0AhVxkUsFHcncDdkQMygDegUIARCxAQ)
 <h1 align="center"><b> 🧚𝗔𝗠𝗔𝗭𝗢𝗡𝗘 𝗔𝗟𝗘𝗫𝗔 (ᴠɪᴘ) </b></h1>
 
 </a>
